@@ -1,1 +1,0 @@
-# mishima_syk12
